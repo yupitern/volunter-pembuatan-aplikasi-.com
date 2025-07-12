@@ -7,4 +7,4 @@ Silakan gunakan format berikut:<br>
 **\* Nama, [LinkedIn/GitHub/Website](Alamat URL).**  
 
 Berikut adalah daftar Volunter yang diterima:
-* Cicilya Oktaviani, [oo.or.id](https://www.linkedin.com/in/cicilya-oktaviani-thane-6122a8247/).
+* Cicilya Oktaviani, [LinkedIn](https://www.linkedin.com/in/cicilya-oktaviani-thane-6122a8247/).
