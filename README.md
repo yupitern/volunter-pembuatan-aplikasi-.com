@@ -8,3 +8,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Cicilya Oktaviani, [LinkedIn](https://www.linkedin.com/in/cicilya-oktaviani-thane-6122a8247/).
+* Cecilia Thane, [LinkedIn](https://www.linkedin.com/in/cicilya-oktaviani-thane-6122a8247/).
